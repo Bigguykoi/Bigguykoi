@@ -20,6 +20,6 @@
 
 
 
-ㅤ[𝕬](https://sillybillykoijoi.atabook.org/)tabook˒ㅤ✦ㅤ[𝕲l](https://guns.lol/sillybillykoijoi)uns.lol˒ㅤ✦ㅤ[𝕾](https://sillybillykoijoii.straw.page)trawpage˒
+ㅤ[𝕬](https://sillybillykoijoi.atabook.org/)tabook˒ㅤ✦ㅤ[𝕲l](https://guns.lol/sillybillykoijoi)uns.lol˒ㅤ✦ㅤ[𝕾](https://sharpdressedman.straw.page)trawpage˒
 
 
