@@ -31,7 +31,12 @@
 
 
 
-ㅤ[𝕬](https://sillybillykoijoi.atabook.org/)tabook˒ㅤㅤ✦ㅤㅤ[𝕾](https://sharpdressedman.straw.page)trawpage˒ㅤㅤ✦ㅤ [𝕲l](https://guns.lol/sillybillykoijoi)uns.lol˒ㅤ
+ㅤ[𝕬](https://sillybillykoijoi.atabook.org/)tabook˒ㅤㅤ✦ㅤㅤ[𝕾](https://sharpdressedman.straw.page)trawpage˒ㅤㅤ✦ㅤ [𝕽](https://rentry.co/rogersstark)entryㅤ
+
+<br />
+<br />
+
+<sub> Rentry shared with my huzz Paulie <3 </sub>
 
 <br />
 <br />
