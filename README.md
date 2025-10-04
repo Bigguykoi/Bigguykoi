@@ -2,13 +2,14 @@
 <br />
 <br />
   
-![](https://komarev.com/ghpvc/?username=Bigguykoi&color=b4bd3e&label=Folks&style=plastic)
+![](https://komarev.com/ghpvc/?username=Bigguykoi&color=ca1154&label=Folks&style=plastic)
 <br />
 
 
 
 
-<img width="1389" height="1279" alt="image" src="https://github.com/user-attachments/assets/f22093f7-e17d-4c64-8322-4ff8c167bcfc" />
+<img width="2500" height="1500" alt="image" src="https://github.com/user-attachments/assets/c14a6ab6-8ce0-4d00-9aeb-8b78461e7129" />
+
 
 
 
@@ -22,13 +23,17 @@
  <sub> Amateur artist, professional music junkie, collector of way too many genres. C+h always, open-source hugs, no permission required.</sub> </p>
 <sub> ✦ </sub>
 
-<br />
-<br />
-<br />
-<br />
-<br />
-<img width="200" height="300" alt="image" src="https://github.com/user-attachments/assets/51b2cd7b-2aee-453e-af1f-6d7e6bfe501a" />
 
+<br />
+<br />
+<br />
+<img width="200" height="300" alt="image" src="https://github.com/user-attachments/assets/502edae5-6b40-4917-926a-a6dd3aa83dd9" />
+<br />
+<br />
+<br />
+<br />
+
+<br />
 
 
 ㅤ[𝕬](https://sillybillykoijoi.atabook.org/)tabook˒ㅤㅤ✦ㅤㅤ[𝕾](https://sharpdressedman.straw.page)trawpage˒ㅤㅤ✦ㅤ [𝕽](https://rentry.co/rogersstark)entryㅤ
@@ -36,7 +41,7 @@
 <br />
 <br />
 
-<sub> Rentry shared with my huzz Paulie <3 </sub>
+<sub> Rentry shared with Paulie <3 </sub>
 
 <br />
 <br />
