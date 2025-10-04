@@ -33,7 +33,7 @@
 <br />
 
 
-ㅤ[𝕬](https://sillybillykoijoi.atabook.org/)tabook˒ㅤㅤ✦ㅤㅤ[𝕾](https://sharpdressedman.straw.page)trawpage˒ㅤㅤ✦ㅤ [𝕽](https://rentry.co/rogersstark)entryㅤ
+ㅤ[𝕬](https://sillybillykoijoi.atabook.org/)tabook˒ㅤㅤ✦ㅤㅤ[𝕾](https://heytheremistergimmesomecash.straw.page)trawpage˒ㅤㅤ✦ㅤ [𝕽](https://rentry.co/rogersstark)entryㅤ
 
 <br />
 <br />
