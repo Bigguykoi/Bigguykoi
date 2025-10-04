@@ -25,11 +25,8 @@
 
 
 <br />
-<br />
-<br />
-<img width="200" height="300" alt="image" src="https://github.com/user-attachments/assets/502edae5-6b40-4917-926a-a6dd3aa83dd9" />
-<br />
-<br />
+
+<img width="100" height="200" alt="image" src="https://github.com/user-attachments/assets/933c60f3-b5a0-4be3-a49b-6cf11808d193" />
 <br />
 <br />
 
@@ -50,7 +47,9 @@
 <br />
 <br />
 
-
+<details>
+</sub><summary>𝘚𝘱𝘰𝘵𝘪𝘧𝘺</summary><h5 align="center">
+  
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3176d66wffyhd4zfphvsyk44it3y&cover_image=true&theme=default&show_offline=false&background_color=0d1117&interchange=false&bar_color_cover=false&bar_color=aa0000)](https://github.com/kittinan/spotify-github-profile)
 
 
