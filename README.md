@@ -20,7 +20,7 @@
 <p align="center"> <sub> 𝙐𝙝, 𝙎𝙝𝙖𝙠𝙚𝙨𝙥𝙚𝙖𝙧𝙚 𝙞𝙣 𝙩𝙝𝙚 𝙥𝙖𝙧𝙠? 𝘿𝙤𝙩𝙝 𝙢𝙤𝙩𝙝𝙚𝙧 𝙠𝙣𝙤𝙬 𝙮𝙤𝙪 𝙬𝙚𝙖𝙧𝙚𝙩𝙝 𝙝𝙚𝙧 𝙙𝙧𝙖𝙥𝙚𝙨? </sub>
 
 
- <sub> Amateur artist, professional music junkie, collector of way too many genres. C+h always, open-source hugs, no permission required.</sub> </p>
+ <sub> Amateur artist, professional music junkie, collector of way too many genres. C+h always.</sub> </p>
 <sub> ✦ </sub>
 
 
@@ -33,12 +33,12 @@
 <br />
 
 
-ㅤ[𝕬](https://sillybillykoijoi.atabook.org/)tabook˒ㅤㅤ✦ㅤㅤ[𝕾](https://heytheremistergimmesomecash.straw.page)trawpage˒ㅤㅤ✦ㅤ [𝕽](https://rentry.co/rogersstark)entryㅤ
+ㅤ[𝕬](https://sillybillykoijoi.atabook.org/)tabook˒ㅤㅤ✦ㅤㅤ[𝕾](https://heytheremistergimmesomecash.straw.page)trawpage˒ㅤㅤ✦ㅤ [wip]ㅤ
 
 <br />
 <br />
 
-<sub> Rentry shared with Paulie <3 </sub>
+<sub> *Sometimes you're better off dead, There's a gun in your hand and it's pointing at your head* </sub>
 
 <br />
 <br />
