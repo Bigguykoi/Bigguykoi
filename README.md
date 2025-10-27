@@ -33,9 +33,9 @@
    
  
     
-[Ａ](https://sillybillykoijoi.atabook.org/)tabook˒
+[Ａ](https://sillybillykoijoi.atabook.org/)tabook
 ${\textsf{\color{#902618}ㅤㅤ✦ㅤㅤ}}$
-[Ｓ](https://heytheremistergimmesomecash.straw.page)trawpage˒
+[wip]
 ${\textsf{\color{#902618}ㅤㅤ✦ㅤㅤ}}$
 [wip]
 <br />
