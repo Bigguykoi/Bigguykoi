@@ -43,9 +43,7 @@ ${\textsf{\color{#902618}ㅤㅤ✦ㅤㅤ}}$
 <br />
 <br />
 
-
-
-<img align="center" img width="510" height="510" alt="image" src="https://github.com/user-attachments/assets/3a3f9a7f-aa8e-4014-b6c7-4dc45af8a7c2" />ㅤ
+<img align="center" img width="510" height="510" alt="image" src="https://github.com/user-attachments/assets/3a3f9a7f-aa8e-4014-b6c7-4dc45af8a7c2" />
 
 <details>
 </sub><summary>𝘚𝘱𝘰𝘵𝘪𝘧𝘺</summary><h5 align="center">
