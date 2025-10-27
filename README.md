@@ -7,7 +7,7 @@
 <br />
 <br />
 
-![gif](https://github.com/user-attachments/assets/6123176b-7b11-4963-be9d-1bab59460150)
+${\textsf{\color{#902618}ㅤㅤ"𝐆𝐞𝐧𝐢𝐮𝐬, 𝐁𝐢𝐥𝐥𝐢𝐨𝐧𝐚𝐢𝐫𝐞, 𝐏𝐥𝐚𝐲𝐛𝐨𝐲, 𝐏𝐡𝐢𝐥𝐚𝐧𝐭𝐡𝐫𝐨𝐩𝐢𝐬𝐭"ㅤㅤ}}$
 
 <br />
 <br />
@@ -43,7 +43,7 @@ ${\textsf{\color{#902618}ㅤㅤ✦ㅤㅤ}}$
 <br />
 <br />
 
-<img align="center" img width="510" height="510" alt="image" src="https://github.com/user-attachments/assets/3a3f9a7f-aa8e-4014-b6c7-4dc45af8a7c2" />
+![gif](https://github.com/user-attachments/assets/6123176b-7b11-4963-be9d-1bab59460150)
 
 <details>
 </sub><summary>𝘚𝘱𝘰𝘵𝘪𝘧𝘺</summary><h5 align="center">
