@@ -2,62 +2,56 @@
 <br />
 <br />
   
-![](https://komarev.com/ghpvc/?username=Bigguykoi&color=ca1154&label=ㅤㅤㅤTHEㅤIRONㅤLEGIONㅤㅤㅤ&style=plastic)
-<br />
-
-<p align="center"> ${\textsf{\color{#7a1351}"Genius, billionaire, playboy, philanthropist"}}$
-
-
-
-<img width="2500" height="1500" alt="image" src="https://github.com/user-attachments/assets/c14a6ab6-8ce0-4d00-9aeb-8b78461e7129" />
-
-
-
+![](https://komarev.com/ghpvc/?username=Bigguykoi&color=8c873c&label=ㅤㅤㅤTHEㅤIRONㅤLEGIONㅤㅤㅤ&style=plastic)
 
 <br />
 <br />
-<br />
 
-<p align="center"> <sub> 𝙐𝙝, 𝙎𝙝𝙖𝙠𝙚𝙨𝙥𝙚𝙖𝙧𝙚 𝙞𝙣 𝙩𝙝𝙚 𝙥𝙖𝙧𝙠? 𝘿𝙤𝙩𝙝 𝙢𝙤𝙩𝙝𝙚𝙧 𝙠𝙣𝙤𝙬 𝙮𝙤𝙪 𝙬𝙚𝙖𝙧𝙚𝙩𝙝 𝙝𝙚𝙧 𝙙𝙧𝙖𝙥𝙚𝙨? </sub>
-
-
-<p align="center"> <sub> Amateur artist, professional music junkie, collector of way too many genres. C+h always </sub> </p>
-<br />
-<br />
-<br />
-<p align="center"> ${\textsf{\color{#d6637d}Interact with care, I get frustrated quite easily.}}$
-
+![gif](https://github.com/user-attachments/assets/6123176b-7b11-4963-be9d-1bab59460150)
 
 <br />
-
-<img width="100" height="200" alt="image" src="https://github.com/user-attachments/assets/933c60f3-b5a0-4be3-a49b-6cf11808d193" />
 <br />
-<br />
-<br />
-
-
-ㅤ[𝕬](https://sillybillykoijoi.atabook.org/)tabook˒
-${\textsf{\color{#d6637d}ㅤㅤ✦ㅤㅤ}}$
-[𝕾](https://heytheremistergimmesomecash.straw.page)trawpage˒
-${\textsf{\color{#d6637d}ㅤㅤ✦ㅤㅤ}}$
-[wip]ㅤ
+<img width="510" height="510" alt="image" src="https://github.com/user-attachments/assets/bddddc00-bb6d-413b-aa6d-85e943f3cdb7" />
 
 <br />
 <br />
 
 <sub> 
-<p align="center"> ${\textsf{\color{#7a1351}Sign my atabook before you leave! :-)}}$
+<p align="center"> <sub> Amateur artist, professional music junkie, collector of way too many genres.  </sub> </p>
 </sub>
-<br />
-<br />
+<sub> 
+<p align="center"> <sub> C+h always encouraged, I prefer having somebody to sit with. Ships are welcomed! </sub> </p>
+</sub>
+<sub> 
+<p align="center"> <sub>  Feel free to interact, just don't be a weirdo towards me if we don't know eachother well.  </sub> </p>
+</sub>
+<sub> 
+<p align="center"> <sub> Basic DNI criteria, I block and hide freely. Don't copy my ponies, inspo is OK 𝘪𝘧 𝘺𝘰𝘶 𝘢𝘴𝘬 𝘣𝘦𝘧𝘰𝘳𝘦𝘩𝘢𝘯𝘥.</sub> </p>
+</sub>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ <p align="center"> ${\textsf{\color{#887f38}LINKS}}$
+   
+ 
+    
+[Ａ](https://sillybillykoijoi.atabook.org/)tabook˒
+${\textsf{\color{#902618}ㅤㅤ✦ㅤㅤ}}$
+[Ｓ](https://heytheremistergimmesomecash.straw.page)trawpage˒
+${\textsf{\color{#902618}ㅤㅤ✦ㅤㅤ}}$
+[wip]
 <br />
 <br />
 <br />
 <br />
 
+
+
+<img align="center" img width="510" height="510" alt="image" src="https://github.com/user-attachments/assets/3a3f9a7f-aa8e-4014-b6c7-4dc45af8a7c2" />ㅤ
+
 <details>
 </sub><summary>𝘚𝘱𝘰𝘵𝘪𝘧𝘺</summary><h5 align="center">
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3176d66wffyhd4zfphvsyk44it3y&cover_image=true&theme=default&show_offline=false&background_color=0d1117&interchange=false&bar_color_cover=false&bar_color=aa0000)](https://github.com/kittinan/spotify-github-profile)
+
+
 
 
