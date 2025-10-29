@@ -11,7 +11,9 @@ ${\textsf{\color{#902618}ㅤㅤ"𝐆𝐞𝐧𝐢𝐮𝐬, 𝐁𝐢𝐥𝐥𝐢�
 
 <br />
 <br />
-<img width="510" height="510" alt="image" src="https://github.com/user-attachments/assets/bddddc00-bb6d-413b-aa6d-85e943f3cdb7" />
+
+<img width="550" height="500" alt="image" src="https://github.com/user-attachments/assets/3aa3acbc-2fbc-4df0-b13c-214c369df311" />
+
 
 <br />
 <br />
