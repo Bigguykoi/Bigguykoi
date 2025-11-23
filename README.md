@@ -2,7 +2,7 @@
 <br />
 <br />
 
-![](https://komarev.com/ghpvc/?username=Bigguykoi&color=d11a16&label=ㅤㅤㅤTHEㅤIRONㅤLEGIONㅤㅤㅤ&style=plastic)
+![](https://komarev.com/ghpvc/?username=Bigguykoi&color=bd1c17&label=ㅤㅤㅤTHEㅤIRONㅤLEGIONㅤㅤㅤ&style=plastic)
 <br />
 
 <sub> 
@@ -32,7 +32,7 @@ ${\textsf{\color{#f9e6b7}ㅤㅤ✦ㅤㅤ}}$
 <br />
 
 <sub> 
-<p align="center"> ${\textsf{\color{#6a0706}Sign my atabook before you leave! :-)}}$
+<p align="center"> ${\textsf{\color{#bd1c17}Sign my atabook before you leave! :-)}}$
 </sub>
 <br />
 <br />
@@ -42,10 +42,11 @@ ${\textsf{\color{#f9e6b7}ㅤㅤ✦ㅤㅤ}}$
 <br />
 
 <details>
-</sub><summary>𝘚𝘱𝘰𝘵𝘪𝘧𝘺</summary><h5 align="center">
+</sub>
+ </sub> <summary>𝘚𝘱𝘰𝘵𝘪𝘧𝘺</summary><h5 align="center">
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3176d66wffyhd4zfphvsyk44it3y&cover_image=true&theme=default&show_offline=false&background_color=0d1117&interchange=false&bar_color_cover=false&bar_color=aa0000)](https://github.com/kittinan/spotify-github-profile)
-  
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3176d66wffyhd4zfphvsyk44it3y&cover_image=true&theme=default&show_offline=false&background_color=0d1117&interchange=false&bar_color_cover=false&bar_color=aa0000)](https://github.com/kittinan/spotify-github-profile) </sub>
+  </sub>
 
 
 
