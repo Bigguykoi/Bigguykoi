@@ -6,7 +6,7 @@
 <br />
 
 <sub> 
- <sub> <p align="center"> ${\textsf{\color{#5e9fff}"Genius, billionaire, playboy, philanthropist"}}$ </sub> 
+ <sub> <p align="center"> ${\textsf{\color{#4493f8}"Genius, billionaire, playboy, philanthropist"}}$ </sub> 
 </sub> 
 
 <br />
