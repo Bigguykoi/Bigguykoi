@@ -2,21 +2,23 @@
 <br />
 <br />
 
-![](https://komarev.com/ghpvc/?username=Bigguykoi&color=bd1c17&label=ㅤㅤㅤTHEㅤIRONㅤLEGIONㅤㅤㅤ&style=plastic)
+![](https://komarev.com/ghpvc/?username=Bigguykoi&color=eaeade&label=ㅤㅤㅤTHEㅤIRONㅤLEGIONㅤㅤㅤ&style=plastic)
 <br />
 
 <sub> 
- <sub> <p align="center"> ${\textsf{\color{#4493f8}"Genius, billionaire, playboy, philanthropist"}}$ </sub> 
+
 </sub> 
 
 <br />
 
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/875eebf1-21a5-452e-a121-e8f6b193694a" />
+
+![ironmanmarvelGIF-ezgif com-gif-maker](https://github.com/user-attachments/assets/60044e01-275f-4135-bef7-9bb0dfa0032a)
+
 
 
 <br />
-
-<p align="center"> ${\textsf{\color{#d15918}I'm a sensitive person and can get easily irritated, so please interact with care. }}$
+ <sub> <p align="center"> ${\textsf{\color{#89a7ac}"Genius, billionaire, playboy, philanthropist"}}$ </sub> 
+<p align="center"> ${\textsf{\color{#92e6fa}I'm a sensitive person and can get easily irritated, so please interact with care. }}$
 
 
 
@@ -24,7 +26,9 @@
 
 ㅤ[ata](https://sillybillykoijoi.atabook.org/)
 ${\textsf{\color{#f9e6b7}ㅤㅤ✦ㅤㅤ}}$
-[WIP]
+[straw](https://starkrogers.straw.page)
+${\textsf{\color{#f9e6b7}ㅤㅤ✦ㅤㅤ}}$
+[lovemail](https://3mail.straw.page)
 ${\textsf{\color{#f9e6b7}ㅤㅤ✦ㅤㅤ}}$
 [WIP]
 
@@ -32,7 +36,7 @@ ${\textsf{\color{#f9e6b7}ㅤㅤ✦ㅤㅤ}}$
 <br />
 
 <sub> 
-<p align="center"> ${\textsf{\color{#bd1c17}Sign my atabook before you leave! :-)}}$
+<p align="center"> ${\textsf{\color{#e0e7db}Sign ata or straw before you leave! :-)}}$
 </sub>
 <br />
 <br />
