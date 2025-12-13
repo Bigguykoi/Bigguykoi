@@ -54,16 +54,9 @@ ${\textsf{\color{#f9e6b7}ㅤㅤ✦ㅤㅤ}}$
   <br /> 
  <br /> 
   <br />
-   <br /> 
-  <br /> 
   
-  <img width="250" height="150" alt="image" src="https://github.com/user-attachments/assets/4f55bde4-b92b-4975-906d-2c1fca093333" /> <br /> <br />
-  My response/ explaination. + Reaction to response (zoom or open in new tab on pc if too small to read)
-   <br />
-<br />
- <img width="200" height="400" alt="image" src="https://github.com/user-attachments/assets/3d805b34-7c19-421a-aac5-3fb674a6267b" />
- <br />
-<br />
+ 
+  
 
   <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/11e072ee-e01a-43af-89fd-d808f9a695a1" />
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/2e60bce7-7e53-44e9-9432-77218be479b4" />
