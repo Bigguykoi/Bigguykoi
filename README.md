@@ -31,13 +31,11 @@ ${\textsf{\color{#ebebe0}ⓘ I'm a sensitive person and can get easily irritated
 <br />
 
 
-ㅤ[ata](https://sillybillykoijoi.atabook.org/)
-${\textsf{\color{#f9e6b7}ㅤㅤ✦ㅤㅤ}}$
-[straw](https://starkrogers.straw.page)
-${\textsf{\color{#f9e6b7}ㅤㅤ✦ㅤㅤ}}$
-[lovemail](https://3mail.straw.page)
+ㅤ[新book](https://sillybillykoijoi.atabook.org/)
 ${\textsf{\color{#f9e6b7}ㅤㅤ✦ㅤㅤ}}$
 [WIP]
+${\textsf{\color{#f9e6b7}ㅤㅤ✦ㅤㅤ}}$
+[strawpage](https://starkrogers.straw.page)
 
 <br />
 <br />
