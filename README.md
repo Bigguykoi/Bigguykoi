@@ -33,7 +33,7 @@ ${\textsf{\color{#ebebe0}ⓘ I'm a sensitive person and can get easily irritated
 
 ㅤ[新book](https://sillybillykoijoi.atabook.org/)
 ${\textsf{\color{#f9e6b7}ㅤㅤ✦ㅤㅤ}}$
-[WIP]
+[pronouns . pg](https://en.pronouns.page/@irnman)
 ${\textsf{\color{#f9e6b7}ㅤㅤ✦ㅤㅤ}}$
 [strawpage](https://starkrogers.straw.page)
 
