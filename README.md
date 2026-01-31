@@ -24,7 +24,7 @@
 <br />
 <br />
 
-${\textsf{\color{#ebebe0}ⓘ I'm a sensitive person and can get easily irritated, so please interact with care. Constant low social battery, expect slow replies.}}$
+${\textsf{\color{#ebebe0}ⓘ I can get easily irritated, don’t be weird if I don’t know you. Constant low social battery, expect slow replies.}}$
 
 
 <br />
