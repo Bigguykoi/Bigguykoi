@@ -35,7 +35,7 @@ ${\textsf{\color{#ebebe0}ⓘ I can get easily irritated, don’t be weird if I d
 ${\textsf{\color{#f9e6b7}ㅤㅤ✦ㅤㅤ}}$
 [pronouns . pg](https://en.pronouns.page/@irnman)
 ${\textsf{\color{#f9e6b7}ㅤㅤ✦ㅤㅤ}}$
-[strawpage](https://starkrogers.straw.page)
+[strawpage](https://tny-strk.straw.page)
 
 <br />
 <br />
