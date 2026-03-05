@@ -24,7 +24,7 @@
 <br />
 <br />
 
-${\textsf{\color{#ebebe0}ⓘ I can get easily irritated, don’t be weird if I don’t know you. Constant low social battery, expect slow replies.}}$
+${\textsf{\color{#ebebe0}ⓘ I can get easily irritated, don’t be weird if I don’t know you. Constant low social battery, expect slow/minimal replies.}}$
 
 
 <br />
