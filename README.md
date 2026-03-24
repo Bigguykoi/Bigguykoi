@@ -23,6 +23,8 @@
  
 <br />
 <br />
+<br />
+
 
 ${\textsf{\color{#ebebe0}ⓘ I can get easily irritated, don’t be weird if I don’t know you. Constant low social battery, expect slow/minimal replies.}}$
 
@@ -31,17 +33,23 @@ ${\textsf{\color{#ebebe0}ⓘ I can get easily irritated, don’t be weird if I d
 <br />
 
 
-ㅤ[新book](https://ironman.atabook.org)
-${\textsf{\color{#f9e6b7}ㅤㅤ✦ㅤㅤ}}$
-[pronouns . pg](https://en.pronouns.page/@irnman)
-${\textsf{\color{#f9e6b7}ㅤㅤ✦ㅤㅤ}}$
-[strawpage](https://tny-strk.straw.page)
-${\textsf{\color{#f9e6b7}ㅤㅤ✦ㅤㅤ}}$
-[rentry](https://rentry.co/rogersstark)
+**[新book](https://ironman.atabook.org)**
+ㅤㅤ
+**[strawpage](https://tny-strk.straw.page)**
+ㅤㅤ
+**[rentry](https://rentry.co/rogersstark)**
+ㅤㅤ
+**[kinlist](lronman.straw.page)**
+
+
 <br />
 <br />
 
- 
+${\textsf{\color{#f9e6b7}ㅤㅤ✦ㅤㅤ}}$
+
+<br />
+
+
 <p align="center"> ${\textsf{\color{#e0e7db}Sign ata or straw before you leave! :-)}}$
 
 <br />
