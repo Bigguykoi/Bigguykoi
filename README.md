@@ -42,7 +42,7 @@ ${\textsf{\color{#ebebe0}ⓘ I can get easily irritated, don’t be weird if I d
 **[kinlist](https://lronman.straw.page)**
 
 
-<br />
+
 <br />
 
 ${\textsf{\color{#f9e6b7}ㅤㅤ✦ㅤㅤ}}$
