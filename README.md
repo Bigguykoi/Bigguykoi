@@ -39,7 +39,7 @@ ${\textsf{\color{#ebebe0}ⓘ I can get easily irritated, don’t be weird if I d
 ㅤㅤ
 **[rentry](https://rentry.co/rogersstark)**
 ㅤㅤ
-**[kinlist](lronman.straw.page)**
+**[kinlist](https://lronman.straw.page)**
 
 
 <br />
