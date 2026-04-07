@@ -37,7 +37,7 @@ ${\textsf{\color{#ebebe0}ⓘ I can get easily irritated, don’t be weird if I d
 ㅤㅤ
 **[strawpage](https://tny-strk.straw.page)**
 ㅤㅤ
-**[rentry](https://rentry.co/BROKEBACKMOUNTAlN)**
+**[rentry](https://rentry.co/-stony)**
 ㅤㅤ
 **[kinlist](https://rentry.co/tny-strk)**
 
