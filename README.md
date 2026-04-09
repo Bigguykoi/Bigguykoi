@@ -16,41 +16,23 @@
 
 
 <br />
+<br />
+<br />
 
- <sub>
- <p align="center"> ${\textsf{\color{#89a7ac}"Genius, billionaire, playboy, philanthropist"}}$
- </sub> 
+<div align="center">
+  
+ㅤㅤ  [<img width="150" height="120" src="https://github.com/user-attachments/assets/f5193e49-1636-4433-a712-8f7b049384cd">](https://Tonystark.atabook.org) ㅤㅤ[<img width="160" height="130" src="https://github.com/user-attachments/assets/4acc9c3f-294c-45ab-8147-d7c199a7f2cf">](https://tny-strk.straw.page) ㅤㅤ[<img width="150" height="120" src="https://github.com/user-attachments/assets/bd75333d-5869-4647-bf20-8e4172ee8ef0">](https://rentry.co/-stony)
+ㅤㅤ
+<br />
  
-<br />
-<br />
-<br />
 
 
-${\textsf{\color{#ebebe0}ⓘ I can get easily irritated, don’t be weird if I don’t know you. Constant low social battery, expect slow/minimal replies.}}$
 
 
-<br />
-<br />
 
 
-**[新book](https://Tonystark.atabook.org)**
-ㅤㅤ
-**[strawpage](https://tny-strk.straw.page)**
-ㅤㅤ
-**[rentry](https://rentry.co/-stony)**
-ㅤㅤ
-**[kinlist](https://rentry.co/tny-strk)**
-
-**[matching](https://rentry.co/WlLLRY)**
-
-<br />
-
-${\textsf{\color{#f9e6b7}ㅤㅤ✦ㅤㅤ}}$
-
-<br />
-
-
-<p align="center"> ${\textsf{\color{#e0e7db}Sign ata or straw before you leave! :-)}}$
+<sub>
+ <p align="center"> ${\textsf{\color{#e0e7db}Sign ata or straw before you leave! :-)}}$  </sub>
 
 <br />
 <br />
