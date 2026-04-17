@@ -21,7 +21,7 @@
 
 <div align="center">
   
-ㅤㅤ  [<img width="150" height="120" src="https://github.com/user-attachments/assets/f5193e49-1636-4433-a712-8f7b049384cd">](https://Tonystark.atabook.org) ㅤㅤ[<img width="160" height="130" src="https://github.com/user-attachments/assets/4acc9c3f-294c-45ab-8147-d7c199a7f2cf">](https://tny-strk.straw.page) ㅤㅤ[<img width="150" height="120" src="https://github.com/user-attachments/assets/bd75333d-5869-4647-bf20-8e4172ee8ef0">](https://rentry.co/-stony)
+ㅤㅤ  [ata](https://Tonystark.atabook.org) ㅤㅤ[straw](https://tny-strk.straw.page) ㅤㅤ[rentry](https://rentry.co/-stony)
 ㅤㅤ
 <br />
  
