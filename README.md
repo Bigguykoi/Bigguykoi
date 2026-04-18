@@ -19,9 +19,14 @@
 <br />
 <br />
 
-<div align="center">
-  
-ㅤㅤ  [ata](https://Tonystark.atabook.org) ㅤㅤ[straw](https://tny-strk.straw.page) ㅤㅤ[rentry](https://rentry.co/-stony)
+
+<p align="center">
+<a href="https://Tonystark.atabook.org/">
+<img width="15%" height="14%" alt="image" src="https://github.com/user-attachments/assets/bab1974b-0a0a-4e97-a842-c15f44391452"/> </a>
+<h>
+    <a href="https://rentry.co/-stony">
+<img width="15%" height="14%" alt="Untitled467_20260412194036" src="https://github.com/user-attachments/assets/320c65d5-9586-416e-abb5-1878b85d28d9" /> </a>
+</p></br>
 ㅤㅤ
 <br />
  
