@@ -7,6 +7,12 @@
 
 <sub> 
 
+@pt-awards  @title-town  @pt-players  @pt-stars  @pt-walk-of-fame  @pt-of-awesomeness  @pt-fashion
+
+<br />
+
+what the fuck 
+
 </sub> 
 
 
