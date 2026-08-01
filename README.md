@@ -5,13 +5,19 @@
 ![](https://komarev.com/ghpvc/?username=Bigguykoi&color=eaeade&label=ㅤㅤㅤTHEㅤIRONㅤLEGIONㅤㅤㅤ&style=plastic)
 <br />
 
+THANK YOU FOR THE AWARDS!
+
 <sub> 
 
-@pt-awards  @title-town  @pt-players  @pt-stars  @pt-walk-of-fame  @pt-of-awesomeness  @pt-fashion  @pt-hall-of-media  pt-nominations
+@pt-awards  @title-town  @pt-players  @pt-stars  @pt-walk-of-fame  @pt-of-awesomeness 
 
 <br />
 
-what the fuck thank you  
+@pt-fashion  @pt-hall-of-media  pt-nominations
+
+<br />
+
+
 
 </sub> 
 
