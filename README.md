@@ -7,7 +7,7 @@
 
 <sub> 
 
-@pt-awards  @title-town  @pt-players  @pt-stars  @pt-walk-of-fame  @pt-of-awesomeness  @pt-fashion  @pt-hall-of-media
+@pt-awards  @title-town  @pt-players  @pt-stars  @pt-walk-of-fame  @pt-of-awesomeness  @pt-fashion  @pt-hall-of-media  pt-nominations
 
 <br />
 
