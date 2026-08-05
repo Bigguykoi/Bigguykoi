@@ -9,11 +9,11 @@ THANK YOU FOR THE AWARDS!
 
 <sub> 
 
-@pt-awards  @title-town  @pt-players  @pt-stars  @pt-walk-of-fame  
+@pt-awards  @title-town  @pt-players  @pt-stars  @pt-walk-of-fame @pt-fashion
 
 <br />
 
-@pt-fashion  @pt-hall-of-media  @pt-nominations  @ponytown-nominations @pt-of-awesomeness 
+ @pt-hall-of-media  @pt-nominations  @ponytown-nominations @pt-of-awesomeness @ponychievements
 
 <br />
 
