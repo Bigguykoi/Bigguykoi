@@ -9,7 +9,7 @@ THANK YOU FOR THE AWARDS!
 
 <sub> 
 
-@pt-awards  @title-town  @pt-players  @pt-stars  @pt-walk-of-fame @pt-fashion
+@pt-awards  @title-town  @pt-players  @pt-stars  @pt-walk-of-fame @pt-fashion @charactersofpt
 
 <br />
 
