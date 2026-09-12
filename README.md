@@ -13,7 +13,7 @@ THANK YOU FOR THE AWARDS!
 
 <br />
 
- @pt-hall-of-media + @pt-nominations + @ponytown-nominations + @pt-of-awesomeness + @ponychievements + @ponytowncosplayers + @paw-town + @style-town
+ @pt-hall-of-media + @pt-nominations + @ponytown-nominations + @pt-of-awesomeness + @ponychievements + @ponytowncosplayers + @paw-town + @style-town + @Ponytowns-rewards
 
 <br />
 
