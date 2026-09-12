@@ -9,11 +9,11 @@ THANK YOU FOR THE AWARDS!
 
 <sub> 
 
-@pt-awards + @title-town + @pt-players + @pt-stars + @pt-walk-of-fame + @pt-fashion + @charactersofpt + @FOLKTOWN + @ship-town + @kaotown
+@pt-awards + @title-town + @pt-players + @pt-stars + @pt-walk-of-fame + @pt-fashion + @charactersofpt + @FOLKTOWN + @ship-town + @kaotown + @Ponytowns-rewards
 
 <br />
 
- @pt-hall-of-media + @pt-nominations + @ponytown-nominations + @pt-of-awesomeness + @ponychievements + @ponytowncosplayers + @paw-town + @style-town + @Ponytowns-rewards
+ @pt-hall-of-media + @pt-nominations + @ponytown-nominations + @pt-of-awesomeness + @ponychievements + @ponytowncosplayers + @paw-town + @style-town
 
 <br />
 
