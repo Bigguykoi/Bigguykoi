@@ -5,7 +5,7 @@
 ![](https://komarev.com/ghpvc/?username=Bigguykoi&color=eaeade&label=ㅤㅤㅤTHEㅤIRONㅤLEGIONㅤㅤㅤ&style=plastic)
 <br />
 
-THANK YOU FOR THE AWARDS!
+THANK YOU!
 
 <sub> 
 
@@ -14,8 +14,6 @@ THANK YOU FOR THE AWARDS!
 <br />
 
  @pt-hall-of-media + @pt-nominations + @ponytown-nominations + @pt-of-awesomeness + @ponychievements + @ponytowncosplayers + @paw-town + @style-town
-
-<br />
 
 
 
@@ -68,7 +66,8 @@ THANK YOU FOR THE AWARDS!
 
 <br />
 <br />
-The faces are the exact same colour if u colourpick... : #4c5550 for the skin, #5e5d3e for the helmet, #544d40 for the cheeks and so on. His response was that I didn't own the colours or tinting style even though they were getting it off of MY pony? Just putting this out there incase he does the same to anyone else who gifts him </3
+The faces are the exact same colour if u colourpick... : #4c5550 for the skin, #5e5d3e for the helmet, #544d40 for the cheeks and so on. His response was that I didn't own the colours or tinting style even though they were getting it off of MY pony? Just putting this out there incase he does the same to anyone else who gifts him </3 
+UPDATE: STILL USES DA BASE EVEN THO HE TOLD ME HE DELETED IT BYEEEE
 
 <br />
 <br />
