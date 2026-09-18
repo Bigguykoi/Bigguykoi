@@ -2,29 +2,20 @@
 <br />
 <br />
 
-![](https://komarev.com/ghpvc/?username=Bigguykoi&color=eaeade&label=ㅤㅤㅤTHEㅤIRONㅤLEGIONㅤㅤㅤ&style=plastic)
+![](https://komarev.com/ghpvc/?username=bigguykoi&color=206684&label=ㅤㅤㅤTHEㅤIRONㅤLEGIONㅤㅤㅤ&style=plastic)
 <br />
 
-THANK YOU!
-
-<sub> 
-
-@pt-awards + @title-town + @pt-players + @pt-stars + @pt-walk-of-fame + @pt-fashion + @charactersofpt + @FOLKTOWN + @ship-town + @kaotown + @Ponytowns-rewards
-
-<br />
-
- @pt-hall-of-media + @pt-nominations + @ponytown-nominations + @pt-of-awesomeness + @ponychievements + @ponytowncosplayers + @paw-town + @style-town
-
-
-
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?&weight=300&pause=1000&color=E0E7DB&center=true&width=436&lines=Jarvis%2C+drop+my+needle." alt="Typing SVG" /></a>
 </sub> 
 
 
+</sub>
+
+### $\color{#ffffff}{\textsf{(}}$ $\color{#d7fdff}{\textsf{'}}$ $\color{#bffafe}{\textsf{꒳}}$ $\color{#8adcf2}{\textsf{˘}}$ $\color{#3589aa}{\textsf{)}}$ 
 
 ![ironmanmarvelGIF-ezgif com-gif-maker](https://github.com/user-attachments/assets/60044e01-275f-4135-bef7-9bb0dfa0032a)
 
-
-
+ <p align="center">
 <br />
 <br />
 <br />
@@ -46,8 +37,7 @@ THANK YOU!
 
 
 
-<sub>
- <p align="center"> ${\textsf{\color{#e0e7db}Sign ata or straw before you leave! :-)}}$  </sub>
+
 
 <br />
 <br />
@@ -57,25 +47,7 @@ THANK YOU!
 
 
 <details>
-  <summary>Skin stealer shit</summary><h5 align="center">
- IN SUMMARY; Me and ikol (formerly moonflowersilver, now house-of-odin) got into an argument. I asked them to stop using my gift pony as a base because they ended up using it to make their friend a gift which I wasn't ok with at all. They responded aggressively with completely absurd arguments like, for example, 'a ton of people tint the same way as you and have almost the exact same style as you. ' and 'You do know what pseudo means, right? Pseudo literally means something or someone fake trying to pass off as the real thing or something fake or false. That's literally my current style. A fake version of yours.' Idk what the fuck hes trying to say here, hes lit proving my point that hes just copying.  ('- '|||)
-   <br />
-  <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/11e072ee-e01a-43af-89fd-d808f9a695a1" />
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/2e60bce7-7e53-44e9-9432-77218be479b4" />
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/3895bd9b-9347-4e36-840f-82a7eaa89147" />
-
-<br />
-<br />
-The faces are the exact same colour if u colourpick... : #4c5550 for the skin, #5e5d3e for the helmet, #544d40 for the cheeks and so on. His response was that I didn't own the colours or tinting style even though they were getting it off of MY pony? Just putting this out there incase he does the same to anyone else who gifts him </3 
-UPDATE: STILL USES DA BASE EVEN THO HE TOLD ME HE DELETED IT BYEEEE
-
-<br />
-<br />
-<img width="300" height="350" alt="image" src="https://github.com/user-attachments/assets/a0fa40a8-5e8b-4963-a1f8-dce4be651800" />
-
-<img width="200" height="100" alt="image" src="https://github.com/user-attachments/assets/34bb9426-e74e-4640-ad9f-0e0b4f30edb2" />
-<br />
-He lied to me and said he had his own consistent style in some half-assed, insincere apology ONLY to get me to remove this part from my github. Actual fucking scumbag behaviour bro.
-
+  <summary>AWARDS</summary><h5 align="center">
+ <a href="https://github.com/pt-awards"> pt-awards </a> + <a href="https://github.com/title-town"> title-town </a> + <a href="https://github.com/pt-players"> pt-players </a> + <a href="https://github.com/pt-stars"> pt-stars </a> + <a href="https://github.com/pt-walk-of-fame"> pt-walk-of-fames </a> + <a href="https://github.com/pt-fashion"> pt-fashion </a> + <a href="https://github.com/charactersofpt"> charactersofpt </a> + <a href="https://github.com/FOLKTOWN"> FOLKTOWN </a> <a href="https://github.com/ship-town"> ship-town </a> + <a href="https://github.com/kaotown"> kaotown </a> + <a href="https://github.com/Ponytowns-rewards"> Ponytowns-rewards </a> + <a href="https://github.com/pt-hall-of-media"> pt-hall-of-media </a> + <a href="https://github.com/pt-nominations"> pt-nominations </a> + <a href="https://github.com/ponytown-nomination"> ponytown-nomination </a> + <a href="https://github.com/pt-of-awesomeness"> pt-of-awesomeness </a> + <a href="https://github.com/ponychievements"> ponychievements </a> + <a href="https://github.com/ponytowncosplayers"> ponytowncosplayers </a> + <a href="https://github.com/paw-town"> paw-town </a> + <a href="https://github.com/style-town"> style-town </a>
 
 
