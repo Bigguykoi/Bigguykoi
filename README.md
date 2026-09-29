@@ -6,11 +6,9 @@
 
 <br />
 <br>
-    <br>
-    <br>
-    <br>
-    <br>
-    <br>
+ 
+
+
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?&weight=300&pause=1000&color=f1f1f1&center=true&width=436&lines=Jarvis%2C+drop+my+needle." alt="Typing SVG" /></a>
  <br>
   <br>
