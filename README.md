@@ -2,7 +2,7 @@
 <br />
 <br />
 
-![.](https://komarev.com/ghpvc/?username=bigguykoi&color=472960&label=ㅤㅤㅤTHEㅤIRONㅤLEGIONㅤㅤㅤ)
+![.](https://komarev.com/ghpvc/?username=bigguykoi&color=6c3f24&label=ㅤㅤㅤTHEㅤIRONㅤLEGIONㅤㅤㅤ)
 
 <br />
 <br>
@@ -13,21 +13,21 @@
  <br>
   <br>
   
-<img align="center" src="https://github.com/user-attachments/assets/abc19454-d3ce-4fda-832d-883036a75843">
+<img align="center" src="https://files.catbox.moe/nvceoo.gif">
     <br>
         <br>
             <br>
             
 <p align="center">
 <a href="https://tonystark.atabook.org/">
-<img width="10%" height="10%" alt="image" src="https://github.com/user-attachments/assets/3ffa3e3b-3897-4934-be56-ad6101045d07"/> </a> $\text{\color{#f1f1f1} ᭝ྀི♡༉}$  
+<img width="10%" height="10%" alt="image" src="https://files.catbox.moe/r58p70.png"/> </a> $\text{\color{#f1f1f1} ᭝ྀི♡༉}$  
 <a href="https://fluffle.cc/backinblack">
-<img width="10%" height="10%" alt="image" src="https://github.com/user-attachments/assets/1e0f650c-dc86-4645-abe6-2800bd41d969"/> </a>
+<img width="10%" height="10%" alt="image" src="https://files.catbox.moe/cttq7j.png"/> </a>
      <br>
      <br>
     <br>
    
-<img align="right" src="https://github.com/user-attachments/assets/a8280b76-4a60-4c40-b3ae-415d4e3d9cc0" width=423>
+<img align="right" src="https://files.catbox.moe/864ivg.gif" width=423>
 
 
 
@@ -41,14 +41,14 @@
      <td>
      <br>
       <br>
-      <div align="center">‎     $\text{\color{#472960}  (ु 𓈒⋅  ⋅𓈒)}$
-       $\text{\color{#484197} Tᴏɴy}$ $\text{\color{#6b7f98} ⠀݂⠀⠀ㅤ۫}$ $\text{\color{#546698} 𝟙6}$
+      <div align="center">‎     $\text{\color{#684830}  (ु 𓈒⋅  ⋅𓈒)}$
+       $\text{\color{#684830} Tᴏɴy}$ $\text{\color{#684830} ⠀݂⠀⠀ㅤ۫}$ $\text{\color{#684830} 𝟙6}$
+<br>
+$\text{\color{#6a371d} hᴇ}$ $\text{\color{#6a371d}⠀⠀𝄞。　 }$ $\text{\color{#6a371d} him}$ $\text{\color{#6a371d} prᴇꜰᴇʀred}$ 
                     <br>
-$\text{\color{#546698} hᴇ}$ $\text{\color{#6b7f98}⠀⠀𝄞。　 }$ $\text{\color{#484197} him}$ $\text{\color{#6b7f98} prᴇꜰᴇʀred}$ 
-                    <br>
-   $\text{\color{#484197} ​🇮​​🇷​​🇮​sh}$ $\text{\color{#6b7f98} ⠀⠀ ᩙ᜔ ˙}$ $\text{\color{#546698} Fɪʟɪᴘino}$
+   $\text{\color{#652811} ​🇮​​🇷​​🇮​sh}$ $\text{\color{#652811} ⠀⠀ ᩙ᜔ ˙}$ $\text{\color{#652811} Fɪʟɪᴘino}$
             <br>
-         $\text{\color{#546698} cud}$ $\text{\color{#6b7f98} ᴇnc}$
+         $\text{\color{#611701} cud}$ $\text{\color{#611701} ᴇnc}$
                     <br>
                 </div>
                 <br>
@@ -58,7 +58,7 @@ $\text{\color{#546698} hᴇ}$ $\text{\color{#6b7f98}⠀⠀𝄞。　 }$ $\text{\
                     <tr>
                         <td>
                     
-<img src="https://github.com/user-attachments/assets/effb0772-2366-47d5-a836-8988934a059f" width=50>
+<img src="https://files.catbox.moe/kblvbp.png" width=50>
 </td>
 </tr>
 <details>
