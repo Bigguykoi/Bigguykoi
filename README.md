@@ -22,7 +22,7 @@
             
 <p align="center">
 <a href="https://tonystark.atabook.org/">
-<img width="10%" height="10%" alt="image" src="https://files.catbox.moe/r58p70.png"/> </a> $\text{\color{#f1f1f1} ᭝ྀི♡༉}$  
+<img width="10%" height="10%" alt="image" src="https://files.catbox.moe/r58p70.png"/> </a> $\text{\color{#f1f1f1}  .     ࣪   ♡‌ }$  
 <a href="https://fluffle.cc/backinblack">
 <img width="10%" height="10%" alt="image" src="https://files.catbox.moe/cttq7j.png"/> </a>
      <br>
@@ -43,14 +43,14 @@
      <td>
      <br>
       <br>
-      <div align="center">‎     $\text{\color{#684830}  (ु 𓈒⋅  ⋅𓈒)}$
+      <div align="center">‎     $\text{\color{#684830}  (ु   𓏼´ ⋏ `𓏼）}$
        $\text{\color{#684830} Tᴏɴy}$ $\text{\color{#684830} ⠀݂⠀⠀ㅤ۫}$ $\text{\color{#684830} 𝟙6}$
 <br>
-$\text{\color{#6a371d} hᴇ}$ $\text{\color{#6a371d}⠀⠀𝄞。　 }$ $\text{\color{#6a371d} him}$ $\text{\color{#6a371d} prᴇꜰᴇʀred}$ 
+$\text{\color{#611701} hᴇ}$ $\text{\color{#652811}⠀ॱ ֺּׅ　 }$ $\text{\color{#6a371d} him}$ $\text{\color{#611701} prᴇꜰᴇʀred}$ 
                     <br>
-   $\text{\color{#652811} ​🇮​​🇷​​🇮​sh}$ $\text{\color{#652811} ⠀⠀ ᩙ᜔ ˙}$ $\text{\color{#652811} Fɪʟɪᴘino}$
+   $\text{\color{#652811} ​🇮​​🇷​​🇮​sh}$ $\text{\color{#684830} ⠀𓏼𝄄†̥̈ ༙༙ }$ $\text{\color{#6a371d} Fɪʟɪᴘino}$
             <br>
-         $\text{\color{#611701} cud}$ $\text{\color{#611701} ᴇnc}$
+         $\text{\color{#611701} cud}$ $\text{\color{#6a371d} ᴇnc ⠀࣪⠀˖　}$
                     <br>
                 </div>
                 <br>
