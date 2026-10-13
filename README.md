@@ -21,12 +21,7 @@
             <br>
             
 <p align="center">
-<a href="https://tonystark.atabook.org/">
-<img width="10%" height="10%" alt="image" src="https://files.catbox.moe/r58p70.png"/> </a> $\text{\color{#f1f1f1}  .     ࣪   ♡‌ }$  
-<a href="https://fluffle.cc/backinblack">
-<img width="10%" height="10%" alt="image" src="https://files.catbox.moe/cttq7j.png"/> </a> $\text{\color{#f1f1f1}   ࣪ .     }$  
- <a href="https://fluffle.cc/1oveyou3000">
-<img width="15%" height="15%" alt="image" src="https://files.catbox.moe/rnxox6.png"/> </a>
+<a href="https://tonystark.atabook.org/"> <img width="10%" height="10%" alt="image" src="https://files.catbox.moe/r58p70.png"/> </a> $\text{\color{#f1f1f1}  .     ࣪   ♡‌ }$  <a href="https://fluffle.cc/arcreactor"> <img width="10%" height="10%" alt="image" src="https://files.catbox.moe/cttq7j.png"/> </a> $\text{\color{#f1f1f1}   ࣪ .     }$  <a href="https://fluffle.cc/1oveyou3000"> <img width="15%" height="15%" alt="image" src="https://files.catbox.moe/rnxox6.png"/> </a>
      <br>
      <br>
     <br>
