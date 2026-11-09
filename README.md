@@ -1,67 +1,30 @@
 <div align="center">
 <br />
 <br />
+<br />
+<br />
 
 
-![.](https://komarev.com/ghpvc/?username=bigguykoi&color=6c3f24&label=ㅤㅤㅤTHEㅤIRONㅤLEGIONㅤㅤㅤ)
+ 
+ ![.](https://komarev.com/ghpvc/?username=bigguykoi&color=ed9ba5&label=ㅤㅤㅤTHEㅤIRONㅤLEGIONㅤㅤㅤ) 
+ 
+ <br />
+ 
 
+<img align="center" src="https://files.catbox.moe/d5jmji.png">
 
 <br />
 <br>
  
 
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?&weight=300&pause=1000&color=f1f1f1&center=true&width=436&lines=Jarvis%2C+drop+my+needle." alt="Typing SVG" /></a>
- <br>
-  <br>
   
-<img align="center" src="https://files.catbox.moe/nvceoo.gif">
+<img align="center" src="https://files.catbox.moe/6rvw3z.png">
     <br>
         <br>
             <br>
             
 <p align="center">
-<a href="https://tonystark.atabook.org/"> <img width="10%" height="10%" alt="image" src="https://files.catbox.moe/r58p70.png"/> </a> $\text{\color{#f1f1f1}  .     ࣪   ♡‌ }$  <a href="https://fluffle.cc/arcreactor"> <img width="10%" height="10%" alt="image" src="https://files.catbox.moe/cttq7j.png"/> </a> $\text{\color{#f1f1f1}   ࣪ .     }$  <a href="https://fluffle.cc/1oveyou3000"> <img width="15%" height="15%" alt="image" src="https://files.catbox.moe/rnxox6.png"/> </a>
-     <br>
+<a href="https://tonystark.atabook.org/"> <img width="10%" height="10%" alt="image" src="https://files.catbox.moe/o5ts8j.png"/> </a> $\text{\color{#f1f1f1}  .     ࣪   ♡‌ }$  <a href="https://fluffle.cc/arcreactor"> <img width="10%" height="10%" alt="image" src="https://files.catbox.moe/fo2820.png"/> </a> $\text{\color{#f1f1f1}   ࣪ .     }$
      <br>
     <br>
-   
-<img align="right" src="https://files.catbox.moe/864ivg.gif" width=423>
-
-
-
-
-
-<p align="center">
-    <br>
-    <br>
-    <table style="width:100%">
-    <tr>
-     <td>
-     <br>
-      <br>
-      <div align="center">‎     $\text{\color{#684830}  (ु   𓏼´ ⋏ `𓏼）}$
-       $\text{\color{#684830} Tᴏɴy}$ $\text{\color{#684830} ⠀݂⠀⠀ㅤ۫}$ $\text{\color{#684830} 𝟙6}$
-<br>
-$\text{\color{#611701} hᴇ}$ $\text{\color{#652811}⠀ॱ ֺּׅ　 }$ $\text{\color{#6a371d} him}$ $\text{\color{#611701} prᴇꜰᴇʀred}$ 
-                    <br>
-   $\text{\color{#652811} ​🇮​​🇷​​🇮​sh}$ $\text{\color{#684830} ⠀𓏼𝄄†̥̈ ༙༙ }$ $\text{\color{#6a371d} Fɪʟɪᴘino}$
-            <br>
-         $\text{\color{#611701} cud}$ $\text{\color{#6a371d} ᴇnc ⠀࣪⠀˖　}$
-                    <br>
-                </div>
-                <br>
-
-<div align="center">
-                <table>
-                    <tr>
-                        <td>
-                    
-<img src="https://files.catbox.moe/kblvbp.png" width=50>
-</td>
-</tr>
-<details>
-  <summary>AWARDS</summary><h5 align="center">
- <a href="https://github.com/pt-awards"> pt-awards </a> + <a href="https://github.com/title-town"> title-town </a> + <a href="https://github.com/pt-players"> pt-players </a> + <a href="https://github.com/pt-stars"> pt-stars </a> + <a href="https://github.com/pt-walk-of-fame"> pt-walk-of-fames </a> + <a href="https://github.com/pt-fashion"> pt-fashion </a> + <a href="https://github.com/charactersofpt"> charactersofpt </a> + <a href="https://github.com/FOLKTOWN"> FOLKTOWN </a> + <a href="https://github.com/ship-town"> ship-town </a> + <a href="https://github.com/kaotown"> kaotown </a> + <a href="https://github.com/Ponytowns-rewards"> Ponytowns-rewards </a> + <a href="https://github.com/pt-hall-of-media"> pt-hall-of-media </a> + <a href="https://github.com/pt-nominations"> pt-nominations </a> + <a href="https://github.com/ponytown-nomination"> ponytown-nomination </a> + <a href="https://github.com/pt-of-awesomeness"> pt-of-awesomeness </a> + <a href="https://github.com/ponychievements"> ponychievements </a> + <a href="https://github.com/ponytowncosplayers"> ponytowncosplayers </a> + <a href="https://github.com/paw-town"> paw-town </a> + <a href="https://github.com/style-town"> style-town </a> + <a href="https://github.com/casinotown"> casinotown </a> + <a href="https://github.com/pt-ship-nominations"> pt-ship-nominations </a> + <a href="https://github.com/piddlesjet"> piddlesjet </a>  + <a href="https://github.com/pt-everypony"> everypony </a>  + <a href="https://github.com/knox-event"> knox-event </a>  + <a href="https://github.com/THE-TEMPIST"> The tempist </a>  + <a href="https://github.com/bug-town"> Bug-town </a>
-
-
