@@ -34,8 +34,11 @@
   <br>
 <br />
 
-<span style='color:#F8D3C5;'>P</span><span style='color:#F7D0C3;'>o</span><span style='color:#F7CEC2;'>n</span><span style='color:#F6CBC0;'>y</span><span style='color:#F6C9BF;'>t</span><span style='color:#F5C7BE;'>o</span><span style='color:#F5C4BC;'>w</span><span style='color:#F4C2BB;'>n</span><span style='color:#F4C0BA;'>'</span><span style='color:#F3BDB8;'>s</span> <span style='color:#F2B8B6;'>T</span><span style='color:#F2B6B4;'>o</span><span style='color:#F2B4B3;'>n</span><span style='color:#F1B1B2;'>y</span> <span style='color:#F0ADAF;'>S</span><span style='color:#F0AAAE;'>t</span><span style='color:#EFA8AC;'>a</span><span style='color:#EFA5AB;'>r</span><span style='color:#EEA3AA;'>k</span> <span style='color:#ED9EA7;'><</span><span style='color:#ED9CA6;'>3</span>
+$\text{\color{#d88593}Ponytown's Tony Stark}$
 
+  <br>
+  
+$\text{\color{#fbefe0}Thank you all!}$
 
 <details>
   <summary>AWARDS</summary><h5 align="center">
