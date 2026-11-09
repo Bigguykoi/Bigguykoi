@@ -25,6 +25,7 @@
             <br>
             
 <p align="center">
-<a href="https://tonystark.atabook.org/"> <img width="20%" height="20%" alt="image" src="https://files.catbox.moe/o5ts8j.png"/> </a> $\text{\color{#f1f1f1}  .     ࣪   ♡‌ }$  <a href="https://fluffle.cc/arcreactor"> <img width="20%" height="20%" alt="image" src="https://files.catbox.moe/fo2820.png"/> </a> $\text{\color{#f1f1f1}   ࣪ .     }$
+</a> <a href="https://tonystark.atabook.org/"> <img src="https://files.catbox.moe/o5ts8j.png" width="20%" height="20%"/></img></a> $\text{\color{#fbefe0}  .     ࣪   ♡‌ }$  </a> <a href="https://fluffle.cc/arcreactor"> <img src="https://files.catbox.moe/fo2820.png" width="20%" height="20%"/></img></a>
      <br>
     <br>
+‎
