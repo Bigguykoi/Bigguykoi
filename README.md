@@ -10,7 +10,7 @@
  
 
 
-<img align="center" src="https://files.catbox.moe/d5jmji.png" height="70%">
+<img align="center" src="https://files.catbox.moe/d5jmji.png" height="50%" width="100%">
 
 <br />
 
