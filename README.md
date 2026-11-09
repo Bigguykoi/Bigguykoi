@@ -6,7 +6,7 @@
 
 
  
-<img align="left" src="https://files.catbox.moe/4v1lh6.gif"> ![.](https://komarev.com/ghpvc/?username=bigguykoi&color=ed9ba5&label=ㅤㅤㅤTHEㅤIRONㅤLEGIONㅤㅤㅤ) <img align="right" src="https://files.catbox.moe/r053ru.gif">
+![.](https://komarev.com/ghpvc/?username=bigguykoi&color=ed9ba5&label=ㅤㅤㅤTHEㅤIRONㅤLEGIONㅤㅤㅤ)
  
  <br />
 
