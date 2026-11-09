@@ -6,7 +6,7 @@
 
 
  
-![.](https://komarev.com/ghpvc/?username=bigguykoi&color=ed9ba5&label=ㅤㅤㅤTHEㅤIRONㅤLEGIONㅤㅤㅤ)
+![.](https://komarev.com/ghpvc/?username=bigguykoi&color=000000&label=ㅤㅤㅤTHEㅤIRONㅤLEGIONㅤㅤㅤ)
  
 
 
