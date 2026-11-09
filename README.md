@@ -34,11 +34,11 @@
   <br>
 <br />
 
-$\text{\color{#d88593}Ponytown's Tony Stark}$
+$\text{\color{#f6b7b7}Ponytown's Tony Stark}$
+ 
+$\text{\color{#f7c2bc}Thank you all!}$
 
-  <br>
-  
-$\text{\color{#fbefe0}Thank you all!}$
+<br />
 
 <details>
   <summary>AWARDS</summary><h5 align="center">
