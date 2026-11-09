@@ -24,7 +24,7 @@
 <p align="center">
 </a> <a href="https://tonystark.atabook.org/"> <img src="https://files.catbox.moe/o5ts8j.png" width="30%" height="30%"/></img></a> $\text{\color{#fbefe0}  .     ࣪   ♡‌ }$  </a> <a href="https://fluffle.cc/arcreactor"> <img src="https://files.catbox.moe/fo2820.png" width="30%" height="30%"/></img></a>
   
- <img align="center" src="https://files.catbox.moe/t5pnes.webp">
+
 
   <br>
   <br>
@@ -35,8 +35,7 @@
 <br />
 
 $\text{\color{#f6b7b7}Ponytown's Tony Stark}$
- 
-$\text{\color{#f7c2bc}Thank you all!}$
+
 
 <br />
 
