@@ -37,7 +37,7 @@
 
 <details>
   <summary>READ</summary><h5 align="center">
-Please stop copying and taking inspo from my ponies without permission. If you want to take inspiration, whisper me or send me a message on my ata. Save yourself the embarrassment of confrontation  
+Please stop copying and taking inspo from my ponies without permission. If you want to take inspiration, whisper me or send me a message on my ata.
   </details>
 
   
